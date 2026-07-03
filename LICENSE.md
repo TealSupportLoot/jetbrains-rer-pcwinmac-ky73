@@ -1,4 +1,4 @@
-# 
+# Meilleur JetBrains Rider modèles pour Mac OS | Gratuit JetBrains Rider modèles pour PC Windows. Avec support des thèmes et constructeur d'images — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
